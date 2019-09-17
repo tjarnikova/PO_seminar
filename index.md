@@ -4,7 +4,7 @@ September 16, 2019  |                   |                                       
 September 23, 2019  |  Dr. Phil Austin  |  What I wish I'd known about statistics  |  5104  |    |    |
 September 30, 2019  |                   |                                          |        |    |    |
 October 7, 2019     |                   |                                          |        |    |    |
-October 14, 2019    |                   |                                          |        |    |    |
+October 14, 2019    |  🦃                |  THANKSGIVING!                           |        |    |    |
 October 21, 2019    |                   |                                          |        |    |    |
 October 28, 2019    |                   |                                          |        |    |    |
 November 4, 2019    |                   |                                          |        |    |    |
